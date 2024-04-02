@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @BigAlG
 - 👀 I’m interested in Improv for beginners
 - 🌱 I’m currently learning working with seniors
-- 💞️ I’m looking to collaborate on enlistng seniors to try improv
+- 💞️ I’m looking to collaborate on enlisting seniors to try improv
 - 📫 How to reach me via email
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I am hupo-manic
